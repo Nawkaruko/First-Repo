@@ -13,4 +13,4 @@ Code a little bit and making music, early game dev!
 
 [Steam](https://steamcommunity.com/id/nawkaruko)
 
-.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　˚　　　　✦　　　.　　. 　
+.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　˚　　　　✦　　　.　　. 　　 ˚　.　　
